@@ -1,1 +1,1 @@
-<img src = "https://github.com/Maneuverr/Maneuverr/assets/156651543/e25b2a43-2984-4d47-9eff-0318a326d6bb">
+<img src = "https://github.com/Maneuverr/Maneuverr/assets/156651543/ab8bcdd8-b711-421f-bf1f-15b846b184e9">
